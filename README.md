@@ -1,1 +1,1 @@
-# Pranathi-s-portfolio
+# Pranathi-portfolio
